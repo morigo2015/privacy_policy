@@ -1,2 +1,2 @@
 # privacy_policy
-privacy policy for out projects and products
+privacy policy for our projects and products
